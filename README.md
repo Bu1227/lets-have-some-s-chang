@@ -1,2 +1,1 @@
-# lets-have-some-ass-cheng
-來點張翊祥
+# 來點張翊祥
